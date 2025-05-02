@@ -1,4 +1,4 @@
-👋 Hi, I’m Sona Sham yuktha M S (@Sona041001)
+👋 Hi, I’m Sona Shamyuktha M S (@Sona041001)
 
 ✨ Welcome to my GitHub! I'm just getting started with my learning journey and using this space to grow, one mini project at a time.
 
